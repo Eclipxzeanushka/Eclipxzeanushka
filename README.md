@@ -9,7 +9,7 @@
 - Launch my own **business ventures** one day
 
 📫 **Let's connect:**  
-[![LinkedIn](https://img.shields.io/badge/-LinkedIn-blue?logo=linkedin&logoColor=white)](www.linkedin.com/in/anushka-saini-82b062364)  
+[![LinkedIn](https://img.shields.io/badge/-LinkedIn-blue?logo=linkedin&logoColor=white)](https://www.linkedin.com/in/anushka-saini-82b062364)  
 ✉️ Email: your-anushkasaini372@gmail.com
 
 ---
