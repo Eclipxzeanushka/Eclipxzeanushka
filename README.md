@@ -10,7 +10,7 @@
 
 📫 **Let's connect:**  
 [![LinkedIn](https://img.shields.io/badge/-LinkedIn-blue?logo=linkedin&logoColor=white)](https://www.linkedin.com/in/anushka-saini-82b062364)  
-✉️ Email: your-anushkasaini372@gmail.com
+✉️ Email: your- anushkasaini372@gmail.com
 
 ---
 
